@@ -41,6 +41,5 @@
 <li>Receive your visa via email</li>
 </ol>
 <p>&nbsp;</p>
-<p style="text-align: center;"><iframe src="https://www.youtube.com/embed/mXBUdZPpV9o?&amp;wmode=opaque&amp;rel=0" width="640" height="360" frameborder="0" allowfullscreen="allowfullscreen"></iframe></p>
 <h2 style="text-align: justify;"><strong>Conclusion</strong></h2>
 <p style="text-align: justify;">Are you looking for visa, The process for applying for a Saudi Arabia visa is simple and straightforward. First, you need to give your contact information and passport details. Then, you need to visit the nearest Saudi Arabia embassy or consulate and provide them with the required documents. After that, they will be given your visa.</p>
